@@ -10,6 +10,6 @@
 
 • OS: Windows 11 - 50€ (technically free due to the update from Windows 10, but I included it anyways)
 
-• Power Supply: be quiet! System Power 9 400w - 75€
+• Power Supply: be quiet! System Power 10 650W - 75€
 
 Total: Around 792€ (without Storage)
