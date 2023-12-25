@@ -12,4 +12,4 @@
 
 • Power Supply: be quiet! System Power 10 650W - 75€
 
-Total: Around 792€ (without Storage)
+Total: About 800€ (without Storage)
